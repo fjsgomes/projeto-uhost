@@ -1,0 +1,1 @@
+Estudando e aplicando os conhecimentos nesse projeto, juntamente com os instrutores Maximilian Schwarzmüller e Manuel Lorenz.
